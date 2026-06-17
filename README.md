@@ -6,3 +6,5 @@ A surreal digital artwork representing the birth of creative thought — where i
 ### Echoes of Rhythm
 A vibrant digital artwork capturing the pulse of music — abstract waves of sound and color flowing like the heartbeat of revolution.
 99REVOLUTIONARY 
+### Echoes of Rhythm
+A vibrant digital artwork capturing the pulse of music — abstract waves of sound and color flowing like the heartbeat of the soul revolution. 99REVOLUTIONARY 
